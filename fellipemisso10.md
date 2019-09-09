@@ -1,0 +1,3 @@
+Gostaria de trabalhar em uma empresa do tipo startup, acredito que o crescimento e o investimento que essas empresas vem obtendo agora está apenas no inicio, é uma area com grande potencial de crescimento, tem um mercado diversifcado e busca novas soluções para os novos desafios que vem aparecendo.
+
+Dentro deste mercado de startup entendo que uma area de grande interesse é trabalhar na area de segurança da informação, é uma area que vem cada dia tornando-se relevante e importantissima para as grandes e pequenas empresas, sou fascinado com as possibilidades de codificação e descodificação que temos hoje em dia.
